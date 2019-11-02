@@ -14,7 +14,7 @@ Just click on the names of the skins to get redirected to where you can download
 # [Aristia(Edit)+trail](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![](https://i.imgur.com/ZXaOGYe.png)
 
-# [Plasmo v2.1] (https://drive.google.com/open?id=1IjmSKL18Bhf_DANoEG1B80gwObek75Hu)
+# [Plasmo v2.1](https://drive.google.com/open?id=1IjmSKL18Bhf_DANoEG1B80gwObek75Hu)
 ![](https://i.imgur.com/pceFSag.png)
 
 # [-TechnoVELLEITY] (
