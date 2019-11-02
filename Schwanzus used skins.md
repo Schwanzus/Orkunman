@@ -17,5 +17,5 @@ Just click on the names of the skins to get redirected to where you can download
 # [Plasmo v2.1](https://drive.google.com/open?id=1IjmSKL18Bhf_DANoEG1B80gwObek75Hu)
 ![](https://i.imgur.com/pceFSag.png)
 
-# [-TechnoVELLEITY] (
+# [-TechnoVELLEITY](https://drive.google.com/drive/folders/16mQMN03za-XU_o8VbSK-pfMquSrqIwDl?usp=sharing)
 ![](https://i.imgur.com/OSNR4On.png)
