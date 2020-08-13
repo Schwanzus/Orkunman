@@ -1,15 +1,12 @@
 # Here are most of the skins I use when I stream [here](https://www.twitch.tv/schwanzus)
 
 
-Just click on the names of the skins to get redirected to where you can download them 
+Just click on the names of the skins to get redirected to where you can download them. 
 
 
 
-# [Azerite (osu player84) 2018-05-16](https://osuskins.net/skin/3IaJFAD)
-![](https://i.imgur.com/XTHsSBg.png)
-
-# [+ Asterisk](https://drive.google.com/file/d/1zd4vWCCQQCoAXzRj3T_Me-dMYo_3DY8E/view)
-![](https://i.imgur.com/G4hSOJn.png)
+# [CeilingWaffle 20200401 idke OJ insta](https://drive.google.com/uc?id=19sUV2s51hffaJcgMnFr87miQqYajPRGg)
+![](https://i.imgur.com/Oyh2dPT.jpg)
 
 # [Aristia(Edit)+trail](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![](https://i.imgur.com/ZXaOGYe.png)
